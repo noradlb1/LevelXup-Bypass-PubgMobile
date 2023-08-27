@@ -2,6 +2,11 @@
 LevelXup-Bypass-PubgMobile
 
 
+My Discord
+
+https://discord.gg/Dd9FMWJVtM
+
+
 ![image](https://github.com/noradlb1/LevelXup-Bypass-PubgMobile/assets/74623428/f76e45bd-e842-493f-8b55-91996f31ab3c)
 
 
